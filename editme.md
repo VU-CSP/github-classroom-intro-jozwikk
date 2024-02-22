@@ -1,3 +1,7 @@
 _Write a question for your teacher below._
 
-Q: 
+Q: How are you doing today?
+
+
+
+
